@@ -1,1 +1,2 @@
 Once upon a time in a forest there lived a Monkey who resided on a jamun tree. In the same forest there lived a crocodile and his wife.
+One day the crocodile came to river and rested, the Monkey offered him some berries. After somedays the crocodile and Monkey became good friends
